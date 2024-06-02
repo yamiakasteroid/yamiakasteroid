@@ -35,6 +35,6 @@
 
 ask questions on retrospring!
 
-(as you guys can tell i really like boombox) 
+(as you guys can tell i really like boombox) (i dont main him)
 
 ![Classrenderboombox1](https://github.com/trinitarianrhapsody/trinitarianrhapsody/assets/170778538/013e5120-b83e-4c52-a5dd-a5bf726be8fb)
