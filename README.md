@@ -33,6 +33,14 @@
 - basic dni criteria !
 ![Boomboxgg](https://github.com/trinitarianrhapsody/trinitarianrhapsody/assets/170778538/333c1bdb-ca7e-4014-9fae-376438e5b806)
 
+✦ 𝘚𝘛𝘈𝘛𝘜𝘚 𝘖𝘕 𝘗𝘖𝘕𝘠𝘛𝘖𝘞𝘕 / 𝘗𝘛 𝘛𝘏𝘐𝘕𝘎𝘚
+- busy = not actually busy (normal status) 
+- looking for roleplay = roleplaying
+- away = offtab / afk
+
+![phighting-boombox (1)](https://github.com/trinitarianrhapsody/trinitarianrhapsody/assets/170778538/3b835e45-8327-40a7-9ee0-2f87b2f9a277)
+
+
 ask questions on retrospring!
 
 (as you guys can tell i really like boombox) (i dont main him)
