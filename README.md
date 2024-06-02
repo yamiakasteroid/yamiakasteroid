@@ -3,8 +3,10 @@
 
 ✦ . you can call me xyrie , xyzzer or adra ! 
 
-✦ . i'm socially awkward - i may respond late ! 
+✦ . i'm socially awkward (unless friend) - i may respond late ! 
 ![boombox-phighting](https://github.com/trinitarianrhapsody/trinitarianrhapsody/assets/170778538/5e65e33f-86e5-408c-b116-db23795d4cfe)
+
+✦ . please do not cover , it's annoying 
 
 ✦ . cuddles + hugs are fine ! i dont bite
 
