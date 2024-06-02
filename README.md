@@ -37,6 +37,7 @@
 - busy = not actually busy (normal status) 
 - looking for roleplay = roleplaying
 - away = offtab / afk
+- mostly at phighting area .
 
 ![phighting-boombox (1)](https://github.com/trinitarianrhapsody/trinitarianrhapsody/assets/170778538/3b835e45-8327-40a7-9ee0-2f87b2f9a277)
 
