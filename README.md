@@ -3,12 +3,12 @@
 
 ✦ . you can call me xyrie , xyzzer or adra ! 
 
-✦ . i'm socially awkward (unless friend) - i may respond late ! 
+✦ . you can int, i don't bite !
 ![boombox-phighting](https://github.com/trinitarianrhapsody/trinitarianrhapsody/assets/170778538/5e65e33f-86e5-408c-b116-db23795d4cfe)
 
-✦ . please do not cover , it's annoying 
+✦ . please do not cover (unless friend) , it's annoying 
 
-✦ . cuddles + hugs are fine ! i dont bite
+✦ . cuddles + hugs are fine ! 
 
 ✦ . you can take inspo from my ponies, just not heavy or dont copy (whos going to copy or take inspo anyway) 
 ![phighting-boombox](https://github.com/trinitarianrhapsody/trinitarianrhapsody/assets/170778538/29b0150d-dd87-4079-9157-d41af2081677)
