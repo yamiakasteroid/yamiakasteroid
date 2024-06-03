@@ -36,7 +36,7 @@
 ![Boomboxgg](https://github.com/trinitarianrhapsody/trinitarianrhapsody/assets/170778538/333c1bdb-ca7e-4014-9fae-376438e5b806)
 
 ✦ 𝘚𝘛𝘈𝘛𝘜𝘚 𝘖𝘕 𝘗𝘖𝘕𝘠𝘛𝘖𝘞𝘕 / 𝘗𝘛 𝘛𝘏𝘐𝘕𝘎𝘚
-- busy = not actually busy (normal status) 
+- busy = online
 - looking for roleplay = roleplaying
 - away = offtab / afk
 - mostly at phighting area .
@@ -45,9 +45,5 @@
 
 
 ask questions on retrospring!
-
-(as you guys can tell i really like boombox) 
-
-(i dont main him)
 
 ![Classrenderboombox1](https://github.com/trinitarianrhapsody/trinitarianrhapsody/assets/170778538/013e5120-b83e-4c52-a5dd-a5bf726be8fb)
