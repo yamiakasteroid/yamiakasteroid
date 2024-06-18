@@ -1,1 +1,1 @@
-![200px-Th07Yuyuko](https://github.com/trinitarianrhapsody/trinitarianrhapsody/assets/170778538/a144b546-6dfb-4e09-b44f-2e2abdec23a7)
+![237px-Th19Zanmu](https://github.com/zanmu-nippaku/zanmu-nippaku/assets/170778538/33328425-1b04-4252-a30e-86e94781813c)
